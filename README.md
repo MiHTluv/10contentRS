@@ -1,1 +1,1 @@
-Link: https://mihtluv.github.io/10contentRS/
+Link: https://ntmi2k3.github.io/10contentRS/
